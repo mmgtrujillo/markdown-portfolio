@@ -1,1 +1,5 @@
-Replace this with a list of your favorite things.
+My favorites activities are:
+
+- watch movies :clapper: 
+- surf the web (studying) :surfer:
+- travel :airplane: :tram: 
